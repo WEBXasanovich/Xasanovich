@@ -1,0 +1,2 @@
+# Xasanovich
+Oxirida dam olaman
